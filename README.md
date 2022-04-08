@@ -1,2 +1,2 @@
 # stingray
-its a financial try 
+its a social  try 
